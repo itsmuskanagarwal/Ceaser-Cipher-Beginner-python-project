@@ -1,1 +1,0 @@
-# Simple-Python-Projects-for-beginners
